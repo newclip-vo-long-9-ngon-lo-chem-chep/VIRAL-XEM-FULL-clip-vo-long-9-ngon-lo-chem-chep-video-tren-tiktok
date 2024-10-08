@@ -1,5 +1,14 @@
 # VIRAL-XEM-FULL-clip-vo-long-9-ngon-lo-chem-chep-video-tren-tiktok
 
+📺📱👉◄◄🔴  https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴  https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴  https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴  https://tinyurl.com/3namhbm4
+
+
 Vụ việc hình ảnh thân mật của nữ giáo viên và nam sinh được lan truyền đang khiến mạng xã hội dậy sóng. Liên quan đến đoạn video phản cảm này, vào chiều ngày 2/10, Sở GD&ĐT Hà Nội đã nhận được báo cáo từ trường THPT Thạch Bàn (quận Long Biên)
 
 Theo thông tin từ báo cáo ghi nhận, danh tính của nữ giáo viên và học sinh trong đoạn clip đã được xác minh. Theo đó nam sinh trong clip là T.N.M.Đ., học sinh lớp 10A4. Cô giáo xuất hiện trong video là M.Q.T. (sinh năm 2001), giảng dạy môn Ngữ văn theo hình thức hợp đồng. Sự việc diễn ra trong giờ giải lao giữa tiết 2 và tiết 3 (khoảng 9h sáng) vào ngày 27/9, tại phòng học lớp 10A4. Người quay clip là K.T.M., cũng là học sinh lớp 10A4.
